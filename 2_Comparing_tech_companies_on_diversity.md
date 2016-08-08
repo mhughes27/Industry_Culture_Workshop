@@ -1,0 +1,9 @@
+I was not at all surprised at all by the statistics in this article.  I however, do not blame the tech industry for these numbers.  I believe this is more of a educational and societal problem than a tech industry problem.  Having been a teacher in an inner-city public school, I am well aware of the achievement gap that exists among white students and their minority counterparts.  Those numbers mirror the tech industry's numbers.    
+
+Closing the achievement gap is the key to improving these numbers.  That is much easier said than done.  Law makers, schools, parents, communities, and students all need to get on the same page and all work together if they want the situation to improve.    
+
+The numbers regarding females in the industry can also be explained by failures in the educational system.  Not enough is done to encourage talented women to pursue careers in STEM fields at an early age.  
+
+The leadership numbers are a little more difficult to understand.  White males are very much over represented in this category.  This leads to every other racial category to be under represented as well as females.  This is evidence that there is still an "old boys network."  White males hire and promote white males at a disproportionate amount compared to other races and genders.  If I had to guess I would say that the number of females in leadership roles has improved over the last twenty years and they will continue to improve.      
+
+I have had several different bosses over the years, white/black/hispanic, male/female, gay/straight.  To me, none of that matters.  Are they competent, and are they effective communicators - that is what I feel is most essential.  Could they treat me like a hard working employee that isn't perfect but tries his best?  Could they give praise and criticism in an effective manner?  Are they willing to listen to their employees and grow as a leader?       
